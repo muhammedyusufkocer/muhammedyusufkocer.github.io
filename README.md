@@ -1,1 +1,0 @@
-# muhammedyusufkocer.github.io
